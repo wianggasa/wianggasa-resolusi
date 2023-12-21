@@ -1,0 +1,1 @@
+# wianggasa-resolusi
